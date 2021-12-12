@@ -93,6 +93,18 @@ Niespodziewany rezultat spowodował że musieli przełożyć swoje próby na kol
 Z odnowionymi siłami, lecz brakiem motywacji, naukowcy siedli przy stole.
 Nie mieli żadnych nowych pomysłów.
 Lecz nagle coś ciekawego się stało.
+Rozdział 11:
+Przeraźliwy ryk świni postawił naukowców na nogi.
+Byli przerażeni, świniom mutatnom zaczeły wyrastać 4 pary oczu.
+Swoimi super oczami w sekundy dostrzegły one błędy w planach eksperymentu naukowców.
+Związały ich i zamknęły w klatkach.
+Postanowiły przejąć władzę w mieście, a niedługo też na świecie.
+Kontynuowały także złowieszcze badania nad lataniem.
+Zapał do eksperymentów napędzała nienawiść i chęć zemsty na ludziach.
+Jedna ze świń nie była jednak tak krwiożercza jak reszta.
+Pragnęła ona jedynie dożyć swoich spokojnych dni starości w jakimś przytulnym miejscu.
+Po tygodniu świniom zbrodniarzom udało się zmutować wszystkie świnie tak, aby latały.
+Świnia pokoju stwierdziła, że nie da rady sama pokonać świń zbrodniarzy, więc odleciała w dal.
 * Rozdział 12:
 Latająca świnia lecąc przez 4 kraje odkryła bezludną wyspę.
 Stawiając swoje kopytka na ciepłym piasku rozpoczęła zwiedzanie.
