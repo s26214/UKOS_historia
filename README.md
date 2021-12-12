@@ -24,6 +24,17 @@ Teraz Chuck Norris będzie walczył ze świnią.
 Finalny pojedynek się zbliża.
 Tak.
 Będzie ciężko
+* Rozdział 8:
+Ludzie odnaleźli strefę 51.
+Znajdowała się ona w Białymstoku.
+Słubice, leśna dolina, czy coś ci to przypomina?
+Bram strzegł sam Lech Wałęsa.
+Nosił on piękną czerwoną czapke z literą "W".
+Gdy ich zauważył zaczął iść w ich strone, ale trafił na własną pułapke i wpadł do dziury.
+Korzystając z okazji tłum wkroczył do budynku.
+Było ciemno w środku, ale ludzie mieli telefony do oświetlenia drogi.
+Na drodze stanął Rafonix, strażnik leśnej doliny.
+"Szybciej z tą lodziarą" - oznajmił, a następnie zaczął szarżować w ich stronę. 
 * Rozdział 10:
 Po kilku godzinach nagle coś hukneło w tle.
 Naukowcy zobaczyli po chwili chmurę dymu unoszącego się w tle.
@@ -34,7 +45,7 @@ Niespodziewany rezultat spowodował że musieli przełożyć swoje próby na kol
 Z odnowionymi siłami, lecz brakiem motywacji, naukowcy siedli przy stole.
 Nie mieli żadnych nowych pomysłów.
 Lecz nagle coś ciekawego się stało.
-* Rozdział 12
+* Rozdział 12:
 Latająca świnia lecąc przez 4 kraje odkryła bezludną wyspę.
 Stawiając swoje kopytka na ciepłym piasku rozpoczęła zwiedzanie.
 W gąszczu drzew ujrzała źródełko z wodą.
