@@ -105,7 +105,7 @@ Niespodziewany rezultat spowodował że musieli przełożyć swoje próby na kol
 Z odnowionymi siłami, lecz brakiem motywacji, naukowcy siedli przy stole.
 Nie mieli żadnych nowych pomysłów.
 Lecz nagle coś ciekawego się stało.
-Rozdział 11:
+* Rozdział 11:
 Przeraźliwy ryk świni postawił naukowców na nogi.
 Byli przerażeni, świniom mutatnom zaczeły wyrastać 4 pary oczu.
 Swoimi super oczami w sekundy dostrzegły one błędy w planach eksperymentu naukowców.
