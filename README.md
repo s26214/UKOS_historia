@@ -1,2 +1,3 @@
 # Ukos_historia
 historia o nauce lataniu świń
+pierwsze proby byly nieudane. Swinia nie chciala wspolpracowac,uciekala od badajacych. W koncu naklonili ja kawalkiem szynki z lodowki i kilogramem marchewek. Proba pierwsza, swinia skoczyla za okno, zlamana jedna noga i duzo kwiczenia. Proba druga, swinia sie odbila brzuchem od ulicy, poleciala na 4 metry w gore i znowu spadla. Proba trzecia, swinia zaczela rozumiec ze grawitacja to jej wrog, wiec uznala ze nie ma grawitacji. swinia oderwala sie od ziemi . Proby ponownego zabrania swini na ziemie okazaly sie zadziwiajaca proste. dodatkowy wniosek, swinia lubi piwo. kto by pomyslal.
