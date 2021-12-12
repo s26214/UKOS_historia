@@ -23,7 +23,9 @@ Stachu Jones wyszkolił go w jeden księżyc.
 Teraz Chuck Norris będzie walczył ze świnią.
 Finalny pojedynek się zbliża.
 Tak.
-Będzie ciężko
+Będzie ciężko.
+* Rozdział 4:
+Chuck Norris rzucił się na świnie i starał się jej kopnąć. Świnia nieczysto zagrała i podłożyła nogę. Wszyscy obecni byli zszokowani. Norris leżał jak trup. Nikt z obecnych nie myślał że ktoś pokona samą legendę Chucka Norrisa. Na szczęście Jakkie Chan rzucił w świnię snickersem bo zaczynała gwiazdorzyć. Z racji że Chuck jest nieśmiertelną istotą, zregenerował się w oka mgnieniu. Do chucka z za pleców zbliżył się Mark Zukkenberg i poklepał go jednego ze swoich. Popatrzyli się na świnię i dali jej jeszcze jeden dzień na rewanż.Świnia niechcąc dać za wygraną chuckowi, i zgodziła się na to. Zajeliśmy się w między czasie na swoją drugą robotę, rekreację dinozaurów i kiedy indziej powrócę do nauk latania świni. Może coś się nauczy od Chucka.
 * Rozdział 10:
 Po kilku godzinach nagle coś hukneło w tle.
 Naukowcy zobaczyli po chwili chmurę dymu unoszącego się w tle.
