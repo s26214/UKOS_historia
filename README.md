@@ -24,6 +24,8 @@ Teraz Chuck Norris będzie walczył ze świnią.
 Finalny pojedynek się zbliża.
 Tak.
 Będzie ciężko
+* Rozdzial 6:
+Swinia w koncu pozbierala sie po bitwie. Uznala ze czas wejrzec wglab siebie i zaczac zadawac sobie wazne pytania. Czemu ona umie latac skoro w powietrzu nie ma dla niej jedzenia. Nie jest drapieznikiem. Jej kopyta sluza do walki ze zlem. Wtedy Mahatma Gandhi podszedl do swini i powiedzial: "najpierw beda cie ignorowac, potem beda sie z ciebie smiac, nastepnie wysadzisz ich bombami atomowymi,po czym, wygrywasz". swinia nie mogla uwierzyc. Odpowiedz na wszystkie jej pytania stala w rosyjskiej bazie wojskowej 500 metrow od niej. Swinia wiedziala juz jaki jest cel jej ezgyztencji. Atomowy boczek.
 * Rozdział 10:
 Po kilku godzinach nagle coś hukneło w tle.
 Naukowcy zobaczyli po chwili chmurę dymu unoszącego się w tle.
