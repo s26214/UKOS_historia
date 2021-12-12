@@ -59,6 +59,18 @@ Odpowiedz na wszystkie jej pytania stala w rosyjskiej bazie wojskowej 500 metrow
 Swinia wiedziala juz jaki jest cel jej ezgyztencji. 
 Atomowy boczek.
 Będzie ciężko.
+* Rozdział 7:
+Świnia biegła aż się za nią paliło. 
+Wszędzie dym. 
+Rosjanie w szoku. 
+Jeden pułkownik do Putina: "Panie Prezydencie, świnia nas atakuje!". 
+Putin odparł: "Атакуй свинью всем, чем можешь". 
+Strzelają do świni z karabinów, helikopterów, nawet snajperzy nic nie zdziałali. 
+Świnia biegła niewzruszona w stronę atomowego celu.
+Jedyną deską ratunku było powiadomienie innych, że nadchodzi zagłada.
+Wiadomość brzmiała tak: "Towarzysze, świnia jest nie do pokonania, moje wojsko nie jest w stanie jej zatrzymać, przygotujcie się na najgorsze"
+Wiadomość ta trafiła do każdego.
+Była jednak nadzieja, grupa ludzi, która naoglądała się za dużo netflixa, uznała, że będą bohaterami. 
 * Rozdział 8:
 Ludzie odnaleźli strefę 51.
 Znajdowała się ona w Białymstoku.
