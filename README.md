@@ -1,6 +1,16 @@
 # Ukos_historia
-historia o nauce lataniu świń
-
+**historia o nauce lataniu świń**
+* Rozdział 1: 
+Rosja, 13.03.1963
+Władza wydaje zgodę na rozpoczęcie tajnych eksperymentów na świniach pospolitych.
+Baza Syberyjska werbuje swoich najlepszych naukowców.
+Wszyscy są bardzo podekscytowani nowym projektem.
+Nadszedł czas na stworzenie Serum latającego.
+Trudząc się wielce w końcu doszli do sekretnej formuły latającej.
+Wykorzystując cząsteczki ciekłego azotu zmieszanego z redbullem można stworzyć najniebezpieczniejszą broń znaną ludzkości - Latających świnio-żołnierzy.
+Nie zwracając uwagi na przestrogi wysoko postawionych dyplomatówm, władza podjęła drastyczne kroki.
+Rozpoczęto masową produkcję niezwykłej mieszanki.
+Nareszcie można było przejść do testów praktycznych.
 * Rozdział 2:
 pierwsze proby byly nieudane.
 Swinia nie chciala wspolpracowac,uciekala od badajacych.
@@ -24,8 +34,30 @@ Teraz Chuck Norris będzie walczył ze świnią.
 Finalny pojedynek się zbliża.
 Tak.
 Będzie ciężko
+* Rozdział 4:
+Chuck Norris rzucił się na świnie i starał się jej kopnąć.
+ Świnia nieczysto zagrała i podłożyła nogę.
+Wszyscy obecni byli zszokowani.
+Norris leżał jak trup.
+Nikt z obecnych nie myślał że ktoś pokona samą legendę Chucka Norrisa.
+Na szczęście Jakkie Chan rzucił w świnię snickersem bo zaczynała gwiazdorzyć.
+Z racji że Chuck jest nieśmiertelną istotą, zregenerował się w oka mgnieniu.
+Do chucka z za pleców zbliżył się Mark Zukkenberg i poklepał go jednego ze swoich.
+Popatrzyli się na świnię i dali jej jeszcze jeden dzień na rewanż.Świnia niechcąc dać za wygraną chuckowi, i zgodziła się na to. 
+Zajeliśmy się w między czasie na swoją drugą robotę, rekreację dinozaurów i kiedy indziej powrócę do nauk latania świni.
+Może coś się nauczy od Chucka.
 * Rozdzial 6:
-Swinia w koncu pozbierala sie po bitwie. Uznala ze czas wejrzec wglab siebie i zaczac zadawac sobie wazne pytania. Czemu ona umie latac skoro w powietrzu nie ma dla niej jedzenia. Nie jest drapieznikiem. Jej kopyta sluza do walki ze zlem. Wtedy Mahatma Gandhi podszedl do swini i powiedzial: "najpierw beda cie ignorowac, potem beda sie z ciebie smiac, nastepnie wysadzisz ich bombami atomowymi,po czym, wygrywasz". swinia nie mogla uwierzyc. Odpowiedz na wszystkie jej pytania stala w rosyjskiej bazie wojskowej 500 metrow od niej. Swinia wiedziala juz jaki jest cel jej ezgyztencji. Atomowy boczek.
+Swinia w koncu pozbierala sie po bitwie.
+Uznala ze czas wejrzec wglab siebie i zaczac zadawac sobie wazne pytania.
+Czemu ona umie latac skoro w powietrzu nie ma dla niej jedzenia.
+Nie jest drapieznikiem.
+Jej kopyta sluza do walki ze zlem.
+Wtedy Mahatma Gandhi podszedl do swini i powiedzial: "najpierw beda cie ignorowac, potem beda sie z ciebie smiac, nastepnie wysadzisz ich bombami atomowymi,po czym, wygrywasz".
+swinia nie mogla uwierzyc.
+Odpowiedz na wszystkie jej pytania stala w rosyjskiej bazie wojskowej 500 metrow od niej.
+Swinia wiedziala juz jaki jest cel jej ezgyztencji. 
+Atomowy boczek.
+Będzie ciężko.
 * Rozdział 10:
 Po kilku godzinach nagle coś hukneło w tle.
 Naukowcy zobaczyli po chwili chmurę dymu unoszącego się w tle.
