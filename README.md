@@ -43,10 +43,12 @@ Norris leżał jak trup.
 Nikt z obecnych nie myślał że ktoś pokona samą legendę Chucka Norrisa.
 Na szczęście Jakkie Chan rzucił w świnię snickersem bo zaczynała gwiazdorzyć.
 Z racji że Chuck jest nieśmiertelną istotą, zregenerował się w oka mgnieniu.
-Do chucka z za pleców zbliżył się Mark Zukkenberg i poklepał go jednego ze swoich.
+Do chucka z za pleców zbliżył się Mark Zuckerberg i poklepał go jednego ze swoich.
 Popatrzyli się na świnię i dali jej jeszcze jeden dzień na rewanż.Świnia niechcąc dać za wygraną chuckowi, i zgodziła się na to. 
 Zajeliśmy się w między czasie na swoją drugą robotę, rekreację dinozaurów i kiedy indziej powrócę do nauk latania świni.
 Może coś się nauczy od Chucka.
+* Rozdział 5:
+Świnia zaczeła się przygotowywać do walki. Włączyła sobie najlepszą playlistę na dzielni i zaczeła swój montaż treningowy. W tle grało "Face off" - Tech N9ne ,przez co przygotowała się w zaledwie w 2 minuty. Spotkali się jak w westernie i spojrzeli się na siebie. Można było poczuć napięcie w powietrzu. Zuckerberg powiedział zawodnikom aby wybrali swą broń. Chuck stwierdził że jego bronią są mieśnie, które było widać że są jak ze stali. Świnia natomiast wybrała katanę. Po czym jak chwyciła ją, zaczeła atakować ona Chucka bez żadnej przerwy na oddech. Chuck natomiast tylko odpierał każdy cios swoimi rękoma. Chuck wygrał bez trudu patrząc się na pokonaną świnię. Już myślał że wzbogaci się w darmowy bekon. Niestety biedy widział że jego przeciwnik nadal dawał oznaki życia.  
 * Rozdzial 6:
 Swinia w koncu pozbierala sie po bitwie.
 Uznala ze czas wejrzec wglab siebie i zaczac zadawac sobie wazne pytania.
