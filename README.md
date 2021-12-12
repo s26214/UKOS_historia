@@ -72,6 +72,17 @@ Korzystając z okazji tłum wkroczył do budynku.
 Było ciemno w środku, ale ludzie mieli telefony do oświetlenia drogi.
 Na drodze stanął Rafonix, strażnik leśnej doliny.
 "Szybciej z tą lodziarą" - oznajmił, a następnie zaczął szarżować w ich stronę. 
+* Rozdział 9:
+Ludzie się spłoszyli i rozbiegli się na lewo i na prawo.
+Rafonix nabrał zbyt dużej prędkości i uderzył w ścianę robiąc w niej dziurę.
+Za dziurą znajdowało się tajne laboratorium Politechniki Białostockiej.
+W środku tworzono nielegalne bomby atomowe.
+Gdy ludzie to zobaczyli, spanikowali, zaczęli biegać po pomieszczeniu i naciskać wszystkie guziki.
+Naukowcy zaczęli na nich krzyczeć, ale było już za późno.
+Laboratorium zaczęło płonąć.
+Dym unosił się w powietrzu i ludzie się prawie udusili.
+Nagle dach laboratorium się rozsypał i dym się ulotnił.
+Ludzie jednak usnęli na kilka godzin.
 * Rozdział 10:
 Po kilku godzinach nagle coś hukneło w tle.
 Naukowcy zobaczyli po chwili chmurę dymu unoszącego się w tle.
