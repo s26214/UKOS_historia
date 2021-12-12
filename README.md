@@ -127,4 +127,4 @@ Przerażona świnka postanowiła znaleźć schronienie przez dziką małpą.
 Chodziła i chodziła, aż odkryła opuszczoną grotę niedźwiedzia.
 Postanowiła rozejrzeć się w niej.
 W grocie było ciemno i ponuro, lecz dzielnej świnki to nie odstraszyło.
-Nagle z ciemności jamy, ujrzała świecące czerwone oczy...
+Świnia żyła w opuszczonej jaskini resztę sowich dni.
