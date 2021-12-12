@@ -1,5 +1,16 @@
 # Ukos_historia
 historia o nauce lataniu świń
+Rozdział 1: 
+Rosja, 13.03.1963
+Władza wydaje zgodę na rozpoczęcie tajnych eksperymentów na świniach pospolitych.
+Baza Syberyjska werbuje swoich najlepszych naukowców.
+Wszyscy są bardzo podekscytowani nowym projektem.
+Nadszedł czas na stworzenie Serum latającego.
+Trudząc się wielce w końcu doszli do sekretnej formuły latającej.
+Wykorzystując cząsteczki ciekłego azotu zmieszanego z redbullem można stworzyć najniebezpieczniejszą broń znaną ludzkości - Latających świnio-żołnierzy.
+Nie zwracając uwagi na przestrogi wysoko postawionych dyplomatówm, władza podjęła drastyczne kroki.
+Rozpoczęto masową produkcję niezwykłej mieszanki.
+Nareszcie można było przejść do testów praktycznych.
 
 * Rozdział 2:
 pierwsze proby byly nieudane.
